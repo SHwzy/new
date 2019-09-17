@@ -2,8 +2,7 @@
 
 ## Before reading：
 <center>Question1:我这么可爱你真的不直接录取我吗？</center>
-
-A1:[当然是要直接录取的](#感谢你的支持smilesmilesmile:) 
+A1:[当然是要直接录取的](#感谢你的支持smilesmilesmile) 
 
 A2:[开什么玩笑给我gkd](#cry-with-a-wa)
 
@@ -13,7 +12,6 @@ A2:[开什么玩笑给我gkd](#cry-with-a-wa)
 :cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry:
 
 <center>不行啊你给我回去重新选啊！</center>
-
 [好](#before-reading)
 
 [好](#before-reading)
