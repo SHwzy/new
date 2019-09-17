@@ -3,10 +3,12 @@
 <br><br><br><br>
 
 ## Before reading：
-<center>Question1:我这么可爱你真的不直接录取我吗？</center><br>
-A1:[当然是要直接录取的](#感谢你的支持smilesmilesmile) 
+<center>Question1:我这么可爱你真的不直接录取我吗？</center>
+Please answer：
 
-A2:[开什么玩笑给我gkd](#cry-with-a-wa)
+1:[当然是要直接录取的](#感谢你的支持smilesmilesmile) 
+
+2:[开什么玩笑给我gkd](#cry-with-a-wa)
 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 
@@ -14,15 +16,17 @@ A2:[开什么玩笑给我gkd](#cry-with-a-wa)
 :cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry::cry:
 
 <center>不行啊你给我回去重新选啊！</center><br>
-[好](#before-reading)
+Please <font color=880000>choose</font>
 
-[好](#before-reading)
+1：[好](#before-reading)
 
-[好](#before-reading)
+2：[好](#before-reading)
 
-[好](#before-reading)
+3：[好](#before-reading)
 
-[好](#before-reading)
+4：[好](#before-reading)
+
+5：[好](#before-reading)
 
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 
