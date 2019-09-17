@@ -2,6 +2,7 @@
 
 ## Before reading：
 <center>Question1:我这么可爱你真的不直接录取我吗？</center>
+
 A1:[当然是要直接录取的](#感谢你的支持smilesmilesmile) 
 
 A2:[开什么玩笑给我gkd](#cry-with-a-wa)
